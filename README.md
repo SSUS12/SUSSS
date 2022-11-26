@@ -1,2 +1,2 @@
 # SUSSS
-impostor is sussssss
+Краду дітей є бажаючі?
